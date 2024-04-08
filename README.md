@@ -24,13 +24,13 @@ Survey (ABS), in particolare, la quarta edizione (W4), risalente al periodo 2014
 Questo sondaggio è particolarmente importante per studiare fenomeni socio-politici
 in Asia, in quanto è uno dei pochi, se non l’unico, in grado di riuscire a coinvolgere
 più paesi di quel continente, permettendo così ai ricercatori di svolgere confronti tra
-questi (Fig.0.1); cosa non da poco osservando le ampie differenze socio-politiche tra stati e la solo recente permeazione della statistica in questo vasto territorio.
+questi ; cosa non da poco osservando le ampie differenze socio-politiche tra stati e la solo recente permeazione della statistica in questo vasto territorio.
 
 Il tema scelto, che potrebbe apparire insolito agli occhi occidentali, si basa su
 importanti radici di carattere geopolitico ed economico. La Cina affonda le proprie
-radici in una civiltà millenaria, il cui nucleo fondante deriva territorialmente dall’unificazione di sette regni a partire già dal III secolo A.C. sotto il primo imperatore
+radici in una civiltà millenaria, il cui nucleo fondante deriva territorialmente dall’unificazione di sette regni a partire già dal III secolo A.C. sotto il primo imperatore
 cinese. Nel corso della storia si è contraddistinta per un profondo senso di orgoglio e
-consapevolezza accompagnate dalla difesa della propria identità culturale, maturando una volontà di isolazionismo nel tramandare e custodire gelosamente la propria
+consapevolezza accompagnate dalla difesa della propria identità culturale, maturando una volontà di isolazionismo nel tramandare e custodire gelosamente la propria
 struttura e tradizioni.
 
 Con il passare dei secoli il potere del Celeste Impero man mano venne meno. Il
