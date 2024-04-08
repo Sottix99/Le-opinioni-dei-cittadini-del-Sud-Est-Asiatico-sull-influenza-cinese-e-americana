@@ -1,4 +1,4 @@
-## Bachelor Thesis : "Le opinioni dei cittadini del Sud-Est Asiatico sull'influenza cinese e americana"
+## Tesi triennale : "Le opinioni dei cittadini del Sud-Est Asiatico sull'influenza cinese e americana"
 
 
 <div style="text-align:center">
