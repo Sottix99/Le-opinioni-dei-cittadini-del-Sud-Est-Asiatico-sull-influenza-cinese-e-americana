@@ -68,7 +68,7 @@ una dittatura.
 
 Gli Stati Uniti d’America, al contrario, non hanno bisogno di presentazioni;
 interpretano da quasi ottant’anni il ruolo di stato più importante del mondo e
-naturalmente hanno l’obbiettivo di mantenerlo. Ovviamente per non essere spodestati, il loro piano deve essere quello di limitare l’espansione cinese ed al contempo continuare la propria.
+naturalmente hanno l’obbiettivo di mantenerlo. Ovviamente per non essere spodestati, il loro piano deve essere quello di limitare l’espansione cinese ed al contempo continuare la propria.
 
 Pertanto il ventunesimo secolo vedrà lo scontro tra queste
 due superpotenze e nonostante in molti diano per certo il trionfo di Pechino, solo il
